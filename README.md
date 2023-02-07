@@ -5,6 +5,7 @@
 🌱 Freelancer<br>
 💬 Ask me about Anything<br>
 ⚡ Fun fact
+Phone 0822-9836-9436
 
 
 ## 🌐 Socials:
